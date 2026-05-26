@@ -1,1 +1,1 @@
-# mi-perfl hello my name is lupe i am seventeen years old soy estudiante de la parroquial doctora aria julia hernandez soy de segundo general A con diplomado en informatica me gustan los videojuegos y ya :)
+# mi-perfl hello my name is lupe i am seventeen years old soy estudiante de la parroquial doctora maria julia hernandez soy de segundo general A con diplomado en informatica me gustan los videojuegos y ya :)
